@@ -24,10 +24,15 @@ Only 14% of men not in first class survived
 
 To Summarize:
 Higher chance to survive:
+
 •	Women
+
 •	Youngs kids
+
 •	First class
+
 •	People with family
+
 The more of these criteria you fit, the better your odds were
       
 
